@@ -3,3 +3,5 @@ Hello :D
 I listened to an interesting podcast today. 
 It was about tribal psychology on a show called You Are Not So Smart.
 Cats are the best
+
+Decades of research shows that intense conflicts stem from a tribal mindset where you favour your own group and view an individual in a different group as an outgroup member instead of an individual.
