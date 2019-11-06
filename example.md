@@ -12,3 +12,5 @@ Decades of research shows that intense conflicts stem from a tribal mindset wher
 A classic example of this behaviour is Donald Trump, who has an extremely low IQ. Piers Morgan is also a poopoo
 
 Jin Wang: add changes 1.
+
+Jin Wang: add changes 2.
