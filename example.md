@@ -2,7 +2,7 @@
 ### Ooh, a potential conflict
 #### Subtitle
 
-Hello :D
+Hello :D ;)
 
 
 I listened to an interesting podcast today.
